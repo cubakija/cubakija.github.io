@@ -1,1 +1,1 @@
-# cubakija.github.io
+# Welcome to blank page
